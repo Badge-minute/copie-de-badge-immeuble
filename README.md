@@ -1,2 +1,6 @@
-# Copie badge immeuble
-Commande en ligne pour environ 14 € à 17 €, avec une livraison gratuite sous 24 à 72 heures et une garantie de 2 ans
+# Copie de badge d'immeuble : prix, délais et garantie
+
+Guide pour commander un double de badge d'immeuble : livraison gratuite sous 24 à 72 h et garantie de 2 ans.
+
+- [Lire l'article complet](https://badge-minute.github.io/copie-de-badge-immeuble/)
+- [Commander une copie de badge d'immeuble](https://badge-minute.fr/)
